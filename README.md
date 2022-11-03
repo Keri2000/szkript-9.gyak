@@ -1,0 +1,1 @@
+# szkript-9.gyak
